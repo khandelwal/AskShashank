@@ -1,7 +1,7 @@
 # AskShashank
 
 An advice column. Create an issue for any advice you need. Shashank will answer
-any all questions. 
+any and all questions. 
 
 Q. Do you charge for advice? 
 
