@@ -5,7 +5,7 @@ any and all questions.
 
 Q. Do you charge for advice? 
 
-A. No, advice is free. 8 x 10 signed photographs are $10. 
+A. No, advice is free. 8 x 10 signed photographs of Shashank are $10. 
 
 
 #### Disclaimer
